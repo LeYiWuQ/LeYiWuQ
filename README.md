@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LeYiWuQ
+- 👋 Hi, I’m @LeYiWuQ(Zeller)
 - 👀 I’m interested in how to use this tool 
 - 🌱 I’m currently learning RM-electrical-control
 - 💞️ I’m looking to collaborate on promoting RM
